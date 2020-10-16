@@ -1,0 +1,1 @@
+https://github.com/kkkmmgy/history_privacypolicy/index.html
